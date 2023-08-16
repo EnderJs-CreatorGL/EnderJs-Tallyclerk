@@ -12,4 +12,8 @@
 
 💠colaborador de Curiosity Bots y lolibots MD💠
 
+👑mi Facebook: https://www.facebook.com/ender.josue.982
+
+👑nunero de WhatsApp: +505 76390682
+
 🍓Que todos tengan un excelente dia y si te gusta el repositorio deja una estrella 🌟
