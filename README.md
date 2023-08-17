@@ -18,4 +18,4 @@
 
 🍓Que todos tengan un excelente dia y si te gusta el repositorio deja una estrella 🌟
 
-https://streak-stats.demolab.com?user=EnderGB&theme=radical&border=000000ED
+![GitHub Streak](https://streak-stats.demolab.com?user=EnderGB&theme=radical&border=000000ED)
