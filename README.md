@@ -4,6 +4,7 @@
 
 
 
+
 ![GitHub Streak](https://streak-stats.demolab.com?user=EnderGB&theme=radical&border=000000ED)
 
 💻¡Hola! bienvenido a (EnderGB) mi peril 💻
@@ -22,7 +23,6 @@
 
 👑mi Facebook: https://www.facebook.com/ender.josue.982
 
-👑nunero de WhatsApp: +505 76390682
 
 🍓pronto mas remas redes donde podras contactame🍓
 
