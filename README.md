@@ -1,4 +1,4 @@
-![GitHub Streak](https://streak-stats.demolab.com?user=Wilsmac&theme=radical&border=000000ED)
+![GitHub Streak](https://streak-stats.demolab.com?user=EnderGB&theme=radical&border=000000ED)
 
 💻¡Hola! bienvenido a (EnderGB) mi peril 💻
 
