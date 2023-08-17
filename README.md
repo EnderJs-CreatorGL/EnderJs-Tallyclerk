@@ -24,7 +24,7 @@
 👑mi Facebook: https://www.facebook.com/ender.josue.982
 
 
-🍓pronto mas remas redes donde podras contactame🍓
+🍓pronto mas redes donde podras contactame🍓
 
 🌟🌟🌟Que todos tengan un excelente dia y si te gusta el repositorio deja una estrella 🌟🌟🌟
 
