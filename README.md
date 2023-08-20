@@ -13,13 +13,13 @@
 
 🌐Me llamo Ender tengo 16 años de edad sigo en secundaria 🌐
 
-🎀me gustan muchos colores pero mis favoritos son el negro,azuly blanco🎀
+🎀me gustan muchos colores pero mis favoritos son el negro, azul blanco🎀
 
 
 🖥️ actualmente estoy aprendiendo Javascript y espero en un futuro ser programador 🖥️
 
 
-💠colaborador de Curiosity Bots y lolibots MD💠
+💠colaborador de Curiosity Bots , Novabot y  lolibots MD💠
 
 👑mi Facebook: https://www.facebook.com/ender.josue.982
 
