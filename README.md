@@ -9,7 +9,7 @@
 
 💻¡Hola! bienvenido a (EnderGB) mi peril 💻
 
-👑información Personal 👑
+👑información Personal Un poco sobre mi y lo que me gusta 👑
 
 🌐Me llamo Ender tengo 16 años de edad sigo en secundaria 🌐
 
@@ -18,8 +18,12 @@
 
 🖥️ actualmente estoy aprendiendo Javascript y espero en un futuro ser programador 🖥️
 
+♦️Nada dura para siempre , ni el dolor , ni el amor ni la alegria .. todo en la vida es aprendizaje todo en la vida es seguir adelante ♦️
 
-💠colaborador de Curiosity Bots , Novabot y  lolibots MD💠
+❄️Mejor fallar pero haberlo intentado , Que fallar sin saber que hubiera pasado❄️
+
+
+💠colaborador de Curiosity Bots MD💠
 
 👑mi Facebook: https://www.facebook.com/ender.josue.982
 
