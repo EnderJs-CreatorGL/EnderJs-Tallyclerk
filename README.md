@@ -22,6 +22,8 @@
 
 ❄️Mejor fallar pero haberlo intentado , Que fallar sin saber que hubiera pasado❄️
 
+🎵🎧🌎💱♻️🎁🧩📈
+
 
 💠colaborador de Curiosity Bots MD💠
 
@@ -30,6 +32,6 @@
 
 🍓pronto mas redes donde podras contactame🍓
 
-🌟🌟🌟Que todos tengan un excelente dia y si te gusta el repositorio deja una estrella 🌟🌟🌟
+🌟Que todos tengan un excelente dia y si te gusta el repositorio deja una estrella 🌟
 
 ![GitHub Streak](https://streak-stats.demolab.com?user=EnderGB&theme=radical&border=000000ED)
