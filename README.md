@@ -16,7 +16,7 @@
 🎀me gustan muchos colores pero mis favoritos son el negro, azul blanco🎀
 
 
-🖥️ actualmente estoy aprendiendo Javascript y espero en un futuro ser programador 🖥️
+🖥️ actualmente estoy aprendiendo Javascript y espero en un futuro espero ser programador 🖥️
 
 ♦️Nada dura para siempre , ni el dolor , ni el amor ni la alegria .. todo en la vida es aprendizaje todo en la vida es seguir adelante ♦️
 
@@ -25,7 +25,7 @@
 🎵🎧🌎💱♻️🎁🧩📈
 
 
-💠colaborador de Curiosity Bots MD💠
+💠colaborador de Curiosity Bots MD , HACHIKO BOTS MD Y LOLI💠
 
 👑mi Facebook: https://www.facebook.com/ender.josue.982
 
