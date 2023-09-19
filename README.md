@@ -35,3 +35,8 @@
 🌟Que todos tengan un excelente dia y si te gusta el repositorio deja una estrella 🌟
 
 ![GitHub Streak](https://streak-stats.demolab.com?user=EnderGB&theme=radical&border=000000ED)
+
+
+## `𝗢𝗪𝗡𝗘𝗥 𝗘𝗡𝗗𝗘𝗥 𝗚𝗕` 
+<a href="[https://github.com/Ender-GB-Isis777]"><img src="https://github.com/Ender-GB-Isis777.png" width="100" height="100" alt="Ender"/></a>
+
