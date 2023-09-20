@@ -5,7 +5,6 @@
 
 
 
-![GitHub Streak](https://streak-stats.demolab.com?user=EnderGB&theme=radical&border=000000ED)
 
 💻¡Hola! bienvenido a (EnderGB) mi peril 💻
 
@@ -34,7 +33,6 @@
 
 🌟Que todos tengan un excelente dia y si te gusta el repositorio deja una estrella 🌟
 
-![GitHub Streak](https://streak-stats.demolab.com?user=EnderGB&theme=radical&border=000000ED)
 
 
 ## `𝗢𝗪𝗡𝗘𝗥 𝗘𝗡𝗗𝗘𝗥 𝗚𝗕` 
