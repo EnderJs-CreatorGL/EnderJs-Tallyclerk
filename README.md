@@ -24,7 +24,7 @@
 🎵🎧🌎💱♻️🎁🧩📈
 
 
-💠colaborador de Curiosity Bots MD , HACHIKO BOTS MD Y LOLI💠
+💠colaborador de Curiosity Bots MD , HACHIKO BOTS , Turbo Bots 💠
 
 👑mi Facebook: https://www.facebook.com/ender.josue.982
 
