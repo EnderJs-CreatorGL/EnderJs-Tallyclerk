@@ -10,12 +10,12 @@
 
 👑información Personal Un poco sobre mi y lo que me gusta 👑
 
-🌐Me llamo Ender tengo 16 años de edad sigo en secundaria 🌐
+🌐Me llamo Ender tengo 18 años de edad sigo en secundaria 🌐
 
 🎀me gustan muchos colores pero mis favoritos son el negro, azul blanco🎀
 
 
-🖥️ actualmente estoy aprendiendo Javascript y espero en un futuro espero ser programador 🖥️
+🖥️ actualmente estoy aprendiendo Javascript y espero en un futuro espero ser programador , Nivel developer 8.9 🖥️
 
 ♦️Nada dura para siempre , ni el dolor , ni el amor ni la alegria .. todo en la vida es aprendizaje todo en la vida es seguir adelante ♦️
 
@@ -35,6 +35,6 @@
 
 
 
-## `𝗢𝗪𝗡𝗘𝗥 𝗘𝗡𝗗𝗘𝗥 𝗚𝗕` 
-<a href="[https://github.com/Ender-GB-Isis777]"><img src="https://github.com/Ender-GB-Isis777.png" width="100" height="100" alt="Ender"/></a>
+## `𝗢𝗪𝗡𝗘𝗥` 
+<a href="[https://github.com/EnderJs-CreatorGL]"><img src="https://github.com/EnderJs-CreatorGL.png" width="100" height="100" alt="Ender"/></a>
 
